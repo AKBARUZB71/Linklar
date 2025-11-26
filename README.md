@@ -1,0 +1,2 @@
+# Linklar
+mening akauntlarim
